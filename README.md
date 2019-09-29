@@ -18,7 +18,7 @@
 ### Professional Experience
 
 - **Havaiia Jewels:**
-Founded a jewlery business (2014) and sold over 200 handmade deisngs to local botiques. Currently in the process of coding and designing an eCommerce website to make Havaiia Jewels jewelry availabe for online purchase.
+founded a jewlery business (2014) and sold over 200 handmade deisngs to local botiques. Currently in the process of coding and designing an eCommerce website to make Havaiia Jewels jewelry availabe for online purchase.
 
 - **Live music performer:** performed at hundreds of music venues including Kauai Homegrown Music Festival (2016), The Lights Fest (2018), Sand Sculpting Challenge San Diego (2017, 2018), Hive Global Retreat (2018).
 
@@ -38,9 +38,9 @@ Founded a jewlery business (2014) and sold over 200 handmade deisngs to local bo
 - **MiraCosta College Annual Scholarship** (2019-2020)
 
 -  **MiraCosta College President's List:**
-Spring, 2018
-Fall, 2018
-Spring, 2019
+Spring 2018
+Fall 2018
+Spring 2019
 
 
 
