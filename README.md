@@ -4,6 +4,10 @@
 
 ### Contact Info: [licol.havaiia@gmail.com](url)
 
+### Languages
+
+- Fluent in English, Hebrew
+
 ### Education
 
 - **MiraCosta College** (2017-current)
