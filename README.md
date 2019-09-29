@@ -41,8 +41,8 @@ Founded a jewlery business (2014) and sold over 200 handmade deisngs to local bo
 - **Phi Theta Kappa Honor Society** (2018-current)
 
 -  **MiraCosta College President's List:**
-Spring 2018
-Fall 2018
+Spring 2018,
+Fall 2018,
 Spring 2019
 
 
