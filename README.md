@@ -34,9 +34,9 @@ Founded a jewlery business in 2014 and sold over 300 handmade deisngs in local b
 - Service Learning Award, MiraCosta College (2018-2019): 
 Awarded for completing hours of community service. 
 
-- MCC Anual Scholarship (2019-2020)
+- MiraCosta College Annual Scholarship receipient (2019-2020)
 
--President's List, MiraCosta College:
+-  MiraCosta College President's List:
 Spring, 2018
 Fall, 2018
 Spring, 2019
