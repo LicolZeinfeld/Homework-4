@@ -25,7 +25,7 @@ Founded a jewlery business in 2014 and sold over 300 handmade deisngs in local b
 
 - **Vice President of San Elijo, Associated Student Government, MiraCosta College** (2018-2019)
 
-- **Executive Vice Preside, Associated Student Government, MiraCosta College** (2019-current)
+- **Executive Vice President, Associated Student Government, MiraCosta College** (2019-current)
 
 
 ### Honors and Awards
