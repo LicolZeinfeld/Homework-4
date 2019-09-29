@@ -10,7 +10,7 @@
 ### Languages
 
 - Primary Languages: Java
-- Foreign Languages: Fluent in Hebrew 
+- Foreign Languages: Fluent native Hebrew speaker/writer
 
 ### Education
 
