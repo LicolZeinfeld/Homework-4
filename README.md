@@ -1,6 +1,6 @@
 ## Licol Zeinfeld
 
-![Portrait.png]
+![Portrait](https://user-images.githubusercontent.com/54374834/65826470-5e532a80-e23a-11e9-8666-69c26d2fd444.png)
 
 ### Contact Info: 
 
