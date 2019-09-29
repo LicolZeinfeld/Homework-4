@@ -15,6 +15,9 @@ Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://j
 
 ### Professional Experience
 
+- Havaiia Jewels,
+       - Founded a jewlery business in 2014 and sold over 300 deisngs in local botiques. Coding and designing      WWW.HavaiiaJewels.com to make jewelry availabe for online purchase. 
+
 - Vice President of San Elijo, Associated Student Government, MiraCosta College (2018-2019)
 
 - Executive Vice Preside, Associated Student Government, MiraCosta College (2019-current)
@@ -27,4 +30,5 @@ Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://j
 
 ### Honors and Awards
  
-- 
+- Service Learning Award
+- MCC Anual Scholarship 
