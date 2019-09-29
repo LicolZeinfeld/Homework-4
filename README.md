@@ -1,6 +1,6 @@
 ## Licol Zeinfeld
 
-[Portrait.png]
+![Portrait.png]
 
 ### Contact Info: 
 
