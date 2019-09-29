@@ -12,7 +12,7 @@
 
 ### Education
 
-- **MiraCosta College** (2017-current)
+- **MiraCosta College**, Computer Science (2017-current)
 
 ### Professional Experience
 
