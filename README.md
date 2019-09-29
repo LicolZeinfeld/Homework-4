@@ -16,7 +16,7 @@
 
 ### Professional Experience
 
-- **Havaiia Jewels:
+- **Havaiia Jewels:**
 Founded a jewlery business in 2014 and sold over 300 handmade deisngs in local botiques. Coding and designing an eCommerce website, www.HavaiiaJewels.com, to make jewelry availabe for online purchase.
 
 - **Live music performer:** performed at hundreds of music venues including Kauai Homegrown Music Festival (2016), The Lights Fest (2018), Sand Sculpting Challenge San Diego (2017, 2018), Hive Global Retreat (2018).
