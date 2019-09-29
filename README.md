@@ -32,10 +32,9 @@ Founded a jewlery business in 2014 and sold over 300 handmade deisngs in local b
 
 - **Grand Prize Winner, Women's Hackathon, CSUSM** (2018)
  
-- **Service Learning Award, MiraCosta College** (2018-2019): 
-Awarded for completing hours of community service. 
+- **MiraCosta Presidential Service Award** (2018-2019): 
 
-- **MiraCosta College Annual Scholarship receipient** (2019-2020)
+- **MiraCosta College Annual Scholarship** (2019-2020)
 
 -  **MiraCosta College President's List:**
 Spring, 2018
