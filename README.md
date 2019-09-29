@@ -9,7 +9,8 @@
 
 ### Languages
 
-- Fluent in English, Hebrew
+- Primary Languages: Java
+- Foreign Languages: Fluent in Hebrew 
 
 ### Education
 
@@ -18,11 +19,11 @@
 ### Professional Experience
 
 - **Havaiia Jewels:**
-founded a jewlery business (2014) and sold over 200 handmade deisngs to local botiques. Currently in the process of coding and designing an eCommerce website to make Havaiia Jewels jewelry availabe for online purchase.
+Founded a jewlery business (2014) and sold over 200 handmade deisngs to local botiques. Currently in the process of coding and designing an eCommerce website to make Havaiia Jewels jewelry availabe for online purchase.
 
-- **Live music performer:** performed at hundreds of music venues including Kauai Homegrown Music Festival (2016), The Lights Fest (2018), Sand Sculpting Challenge San Diego (2017, 2018), Hive Global Retreat (2018).
+- **Live music performer:** Performed at hundreds of music venues including Kauai Homegrown Music Festival (2016), The Lights Fest (2018), Sand Sculpting Challenge San Diego (2017, 2018), Hive Global Retreat (2018).
 
-- **Music instructor:** currently providing piano, guitar and vocal lessons for children and adults.
+- **Music instructor:** Currently providing piano, guitar and vocal lessons for children and adults.
 
 - **Vice President of San Elijo, Associated Student Government, MiraCosta College** (2018-2019)
 
@@ -36,6 +37,8 @@ founded a jewlery business (2014) and sold over 200 handmade deisngs to local bo
 - **MiraCosta Presidential Service Award** (2018-2019): 
 
 - **MiraCosta College Annual Scholarship** (2019-2020)
+
+- **Phi Theta Kappa Honor Society** (2018-current)
 
 -  **MiraCosta College President's List:**
 Spring 2018
