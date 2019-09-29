@@ -37,7 +37,7 @@ Awarded for completing hours of community service.
 
 - **MiraCosta College Annual Scholarship receipient** (2019-2020)
 
--  **MiraCosta College President's List:
+-  **MiraCosta College President's List:**
 Spring, 2018
 Fall, 2018
 Spring, 2019
