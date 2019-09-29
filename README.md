@@ -1,4 +1,4 @@
-## Licol Zeinfeld
+# Licol Zeinfeld
 
 <img width="118" alt="Screen Shot 2019-09-28 at 9 54 24 PM" src="https://user-images.githubusercontent.com/54374834/65826475-935f7d00-e23a-11e9-821f-5dc3dea6abc0.png">
 
