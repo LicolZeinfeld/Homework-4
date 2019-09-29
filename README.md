@@ -34,7 +34,7 @@ Founded a jewlery business (2014) and sold over 200 handmade deisngs to local bo
 
 - **Grand Prize Winner, Women's Hackathon, CSUSM** (2018)
  
-- **MiraCosta Presidential Service Award** (2018-2019): 
+- **MiraCosta Presidential Service Award** (2018-2019) 
 
 - **MiraCosta College Annual Scholarship** (2019-2020)
 
